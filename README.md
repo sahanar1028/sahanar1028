@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sahana R
-- MTech student @ NIT, Surat
+- 👩‍🎓 MTech student @ NIT, Surat
 
 
 <!---
